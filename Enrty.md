@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @EquilibriumBroski
+- 👀 I’m interested in Computer programming, learning something new and of course making money ;)
+- 🌱 I’m currently learning C++
+- 📫 How to reach me:
+- inst: https://instagram.com/_priestass_?igshid=NzNkNDdiOGI=
+- Gmail: lvanbubenko2005@gmail.com
